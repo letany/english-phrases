@@ -20,3 +20,7 @@
 - ##### 美 [ɪn ˈprefrəns tu]
 - ##### 英 [ɪn ˈprefrəns tu]
 - ##### 优先于
+
+### dos and don'ts
+- ##### 美 [dɔːs ənd doʊnts] 
+- ##### 注意事项;规矩
